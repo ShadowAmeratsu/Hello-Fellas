@@ -1,6 +1,6 @@
 # Hello-Fellas
-Practicing my goon arts
-Gooning to nothing in particular
+Practicing my arts
+Listening to nothing in particular
 And arting nothing likewise
 
 What if I created music inside a beetroot, call that a Dance Beet
